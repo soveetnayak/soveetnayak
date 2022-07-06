@@ -1,5 +1,7 @@
 - 👋 Hi, I’m Soveet Kumar Nayak
 
+![Big Hero 6 Photo_ Baymax](https://user-images.githubusercontent.com/82279578/177562163-fa97d05e-08fb-4efd-bc35-2ffc12fa87eb.gif)
+
 
 <!---
 soveetnayak/soveetnayak is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
