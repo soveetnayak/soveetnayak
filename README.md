@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Soveet Kumar Nayak
+- 👋 Hi, I’m Soveeeeeeet! Nice to meet you. Look around as much as you like.
 
 ![Big Hero 6 Photo_ Baymax](https://user-images.githubusercontent.com/82279578/177562163-fa97d05e-08fb-4efd-bc35-2ffc12fa87eb.gif)
 
